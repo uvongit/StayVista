@@ -1,2 +1,2 @@
-# MyStayVista-->
+# MyStayVista
  
